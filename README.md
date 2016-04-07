@@ -4,10 +4,8 @@ demo for getting badges for Christie's course!
 
 Liz
 
-Saisi
-Is commenting from her phone too! XD
+Staisi
 
-Andrew
+Andrew - I like butterflies
 
 Christie
-Is participating from her phone!
