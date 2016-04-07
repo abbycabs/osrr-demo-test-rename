@@ -9,3 +9,4 @@ Staisi
 Andrew
 
 Christie
+Is participating from her phone!
