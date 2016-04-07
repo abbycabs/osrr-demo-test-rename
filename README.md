@@ -2,12 +2,10 @@
 demo for getting badges for Christie's course!
 
 
-Liz
+Liz-finishing MSc in Entomology at MSU! 
 
-Saisi
-Is commenting from her phone too! XD
+Staisi
 
 Andrew
 
 Christie
-Is participating from her phone!
