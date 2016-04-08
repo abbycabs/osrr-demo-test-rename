@@ -8,7 +8,7 @@ demo for getting badges for Christie's course!
 
 Liz-finishing MSc in Entomology at MSU! 
 
-Staisi
+Saisi
 
 Andrew - I like butterflies
 
